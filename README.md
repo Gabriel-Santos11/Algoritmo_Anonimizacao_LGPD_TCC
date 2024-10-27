@@ -1,0 +1,1 @@
+# Algoritmo_Anonimizacao_LGPD_TCC
